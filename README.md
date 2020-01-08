@@ -1,0 +1,1 @@
+# DiplomaKayitOrnegi_linux
